@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-AAAG791111HCHLGS05
+AAAG791111HCHLGS05
